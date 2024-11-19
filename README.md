@@ -7,5 +7,4 @@ as arvores somos nozes
 
 Seu zé mané, as arvores ser os índio....
 
-
-as arvores são as arvores, estranhos. #3
+as arvores são as arvores, estranhos.
